@@ -1,2 +1,2 @@
 # Suchet
-I am a newbie for coding. : )
+I am a Fraud Analyst Now looking for Data Scientist job. : )
