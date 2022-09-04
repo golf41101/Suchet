@@ -1,2 +1,2 @@
 # Suchet
-I am a Fraud Analyst Now looking for Data Scientist job.
+I am a Fraud MIS/analyst passionate insights or data trends. Currently looking for Oppornity in Data Scientist job.
